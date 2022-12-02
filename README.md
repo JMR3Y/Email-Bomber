@@ -19,3 +19,12 @@ Luego deben poner la cantidad, espresada con un número (1:1000, y más que ver�
 Luego deberán seleccionar si el correo de la persona finaliza en @gmail.com u otro
 Y después TU correo y contraseña para enviarlos (Puede ser correo fake)
 Luego poner el Tema, Mensaje... Y ya estaría 
+
+
+# Sígueme en mis redes para más:
+
+• Instagram: @jm_r3y
+
+• TikTok: @jm_r3y
+
+• YouTube: @jm_r3y
